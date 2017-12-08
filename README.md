@@ -9,3 +9,5 @@
 > However, NonNameYet Just Thinking That This A Best Chance To Go Home And Need To Think What He Suppose To Tell His Mom About This Events...
 
 ###### Note From Me; This Is A Short Story, So... Enjoy~~
+
+##### You Find Something Weird?? Like Grammar Mistake?, Wrong Spelling?? And Wanted To Help Me?? Then You Read This Is Not Wasted Your Time!! [Open The Issues By Clicking The Green Button { New Issues }](https://github.com/Cynoser/No-Title-Yet/issues)
