@@ -11,3 +11,5 @@
 ###### Note From Me; This Is A Short Story, So... Enjoy~~
 
 ##### You Find Something Weird?? Like Grammar Mistake?, Wrong Spelling?? And Wanted To Help Me?? Then You Read This Is Not Wasted Your Time!! [Open The Issues By Clicking The Green Button { New Issues }](https://github.com/Cynoser/No-Title-Yet/issues)
+
+#### Dont Forget To Read The LICENSE >> [__MIT LICENSE__](https://github.com/Cynoser/No-Title-Yet/blob/master/LICENSE)
