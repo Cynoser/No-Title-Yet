@@ -4,7 +4,7 @@
 
  My Name Is NonNameYet, I Had Been Working At A 'BlahBlahBlah Organization' For Almost Fifteen-Years Since I Was Twenties Years Old, Thus I'm Thirty-Fifth Years Old This Year.
 
- Like Always, I'm Completing The Organization's Data Management For This Month, And Last Week The 'BlahBlahBlah Country's President' Changed The 'BlahBlahBlah Organization's CEO' TO Some Unknown Person That I Had Never Heard Before, It's A Woman By The Way. The Former's CEO Was Living Happily At Some Island, Is What I Heard And I Don't Care Abot It Cause It Not Even My Problems.
+ Like Always, I'm Completing The Organization's Data Management For This Month, And Last Week The 'BlahBlahBlah Country's President' Changed The 'BlahBlahBlah' Organization's CEO To Some Unknown Person ( Because The 'BlahBlahBlah' Organization is the country's organization [Not Like I Care]) That I Had Never Heard Before, It's A Woman By The Way. The Former's CEO Was Living Happily At Some Island, Is What I Heard And I Don't Care Abot It Cause It Not Even My Problems.
 
   Anywhere... Back To Work. While I 'Were' Sorting The Organization's Data, The Current CEO, Which I Don't Know Would Come And See Me At My Workplace. She Wore A 'Very Very Very' Common Office Suit. Lost My Hope In 'Something', But In The Bright Side, I Got To See The So Called 'Beautiful Face', That Had Been Rumoured All Around The Organizations', Which I Should Tell It's True That She Is 'Beautiful' Woman I Had Ever Seen.
 
